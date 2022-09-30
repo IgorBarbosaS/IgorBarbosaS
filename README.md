@@ -33,7 +33,7 @@ Se quiser interagir comigo, entre em contato no Linkedin, Instagram ou E-mail ab
 
 <hr />
 
-####  By Hyrule!
+####  By 
 ![image](![image](https://user-images.githubusercontent.com/109825088/193264153-e10d30f9-f59b-4f59-acab-943cfa60ee80.png)
 
 
